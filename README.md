@@ -24,6 +24,6 @@ https://www.google.com/maps/place/To+Spiti+%E2%80%93+Beratung+%E2%80%93+Begegnun
 
 https://www.berlin.arbeitundleben.de/das-team/ 
 
-+49 030 5130 19269 - Katerina Rapti - Τηλεφωνική επικοινωνία: Mo 13-18 Τue 14-18
++49 30 5130 19269 - Katerina Rapti - Τηλεφωνική επικοινωνία: Mo 13-18 Τue 14-18
 
 +49 30 5130 19283 - Ourania Kyriakopoulou - Τηλεφωνική επικοινωνία: 

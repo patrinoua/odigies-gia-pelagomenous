@@ -31,4 +31,4 @@ https://www.berlin.arbeitundleben.de/das-team/
 
 ### Looking for a new position?
 
-work-in-tech.org
+https://work-in-tech.org

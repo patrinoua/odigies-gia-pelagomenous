@@ -2,13 +2,13 @@
  
 Πού μπορώ να βρω συμβουλές σχετικά με τα εργασιακά στο Βερολίνο;
 
-### Νέα Αρχή (Συμβουλευτική μεταναστών και διερμηνεία)
+### Die Wille
 
-https://www.nea-arxi.com/el/
+https://www.johannesstift-diakonie.de/teilhabe-paedagogik/die-wille
 
-+49 30 31488468
+Χαράλαμπος
 
-Γιώτης Καλαιντίδης, 30-60€ για συμβουλευτική, βοήθεια με αιτήσεις στο Job Center, μεταφράσεις, κλπ
+Δωρεαν συμβουλευτικη σε διαφορα θεματα
 
 ### Το Σπίτι (To Spiti – Beratung – Begegnung – Beteiligung)
 
@@ -18,15 +18,31 @@ https://www.google.com/maps/place/To+Spiti+%E2%80%93+Beratung+%E2%80%93+Begegnun
 
 Σοφία Μαργαρίτη, δωρεάν, συμβουλές σε διάφορα θέματα
 
-### Arbeit und Leben (MEBA)
+### Νέα Αρχή (Συμβουλευτική μεταναστών και διερμηνεία)
+
+https://www.nea-arxi.com/el/
+
++49 30 31488468
+
+Γιώτης Καλαιντίδης, 20-60€ για συμβουλευτική, βοήθεια με αιτήσεις στο Job Center, μεταφράσεις, κλπ
+
+### Arbeit und Leben (MEBA) 
 
 Συμβουλευτική για νομικά θέματα 
 
 https://www.berlin.arbeitundleben.de/das-team/ 
 
-+49 30 5130 19268 - Katerina Rapti - Τηλεφωνική επικοινωνία: Mo 13-18 Τue 14-18
+[not anymore, there's a new person]
 
-+49 30 5130 19283 - Ourania Kyriakopoulou - Τηλεφωνική επικοινωνία: 
+δικηγοροι
+----- 
+Katerina Rapti 
+
+Ourania Kyriakopoulou
+
+λογιστες?
+----
+(πειτε μου αν ξερετε καποιον 🙏)
 
 
 ### Looking for a new position?

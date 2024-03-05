@@ -34,14 +34,14 @@ https://www.berlin.arbeitundleben.de/das-team/
 
 [not anymore, there's a new person]
 
-δικηγοροι
------ 
+[δικηγοροι]
+
 Katerina Rapti 
 
 Ourania Kyriakopoulou
 
-λογιστες?
-----
+[λογιστες?]
+
 (πειτε μου αν ξερετε καποιον 🙏)
 
 

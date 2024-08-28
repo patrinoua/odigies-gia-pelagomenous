@@ -44,6 +44,16 @@ Ourania Kyriakopoulou
 
 (πειτε μου αν ξερετε καποιον 🙏)
 
+### Bona
+Ανατολη Ορφανιδου δικηγορος
+Δευτερες sprechstunden 13:00-18:00 στο bona
+
+https://www.berlin.de/ba-friedrichshain-kreuzberg/politik-und-verwaltung/aemter/amt-fuer-soziales/artikel.800062.php
+Information über die unabhängige Sozial- und Mietrechtsberatung in Krezuberg
+
+Bona-Peiser-Peojecträume
+030 69404427
+Oranienstr 72
 
 ### Looking for a new position?
 

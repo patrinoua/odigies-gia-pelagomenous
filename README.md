@@ -55,6 +55,5 @@ Bona-Peiser-Peojecträume
 030 69404427
 Oranienstr 72
 
-### Looking for a new position?
-
-https://work-in-tech.org
+- - - 
+https://www.rechtsanwalt-imanuel-schulz.de/rechtsgebiete/sozialrecht-hartz-iv/?fbclid=IwY2xjawHHqhZleHRuA2FlbQIxMAABHWc6yulDRmbpYr28ROLHMcijWAbsx84u9guitSfKa4mTwuqPSqRywNfL_A_aem_qAIj4XK-aewoSZiFlD2PIg
